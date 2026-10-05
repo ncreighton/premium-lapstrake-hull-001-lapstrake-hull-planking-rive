@@ -1,0 +1,2 @@
+# premium-lapstrake-hull-001-lapstrake-hull-planking-rive
+Tired of drowning in loose plans, scattered notes, and forgotten rivet counts while building your lapstrake hull? This Notion template transforms your chaotic workflow into a structured digital workshop.  The Lapstrake Hull Planking &amp; Rivet Craft Lab solves the pain of managing the intricate, multi-step process of lapstrake hull construction. It pr
